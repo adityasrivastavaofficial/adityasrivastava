@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently working with **The Data Management & Consultancy Services**
   
-- 💬 Ask me about **Mathematics, Physics, Product Strategy, Project Management**
+- 💬 Ask me about **Project Management, Product Strategy, Product Development Lifecycle**
 
 - 📫 How to reach me **adityasrivastava72@gmail.com**
 
